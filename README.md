@@ -29,3 +29,7 @@ Identificación de brechas en la educación sexual.
 Diseño de soluciones prácticas (como una app educativa o talleres interactivos).
 Recomendaciones para intervenciones preventivas efectivas.
 
+![Captura de pantalla 2024-12-10 073723](https://github.com/user-attachments/assets/092a1fbd-5f7c-4eda-bac6-458355a1ab21)
+![image](https://github.com/user-attachments/assets/52469d5b-e071-4412-96da-7d52c7a96bcc)
+![image](https://github.com/user-attachments/assets/06d801c6-ba6e-41e5-b8db-bcf93b7cf0fb)
+![image](https://github.com/user-attachments/assets/5cf9940d-d451-4827-b75c-9249c27c5f55)
